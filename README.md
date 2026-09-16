@@ -47,8 +47,7 @@ and start my career in the **IT & Technology field**.
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: Add your LinkedIn profile here
-- 📧 Email: Add your professional email here
+- 📧 Email: samarthsawant342@gmail.com
 
 ---
 
